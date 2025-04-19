@@ -1,7 +1,12 @@
-👋 Hi, I’m @Ev3r3tt
-👀 I’m interested in blooket hacks
-🌱 I’m currently learning nothing
-💞️ I’m looking to collaborate on idk
-📫 How to reach me idk
-😄 Pronouns: he/him
-⚡ Fun fact: i do blooket hacks
+- 👋 Hi, I’m @Ev3r3tt
+- 👀 I’m interested in blooket hacks
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on idk
+- 📫 How to reach me idk
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: i do blooket hacks
+
+<!---
+Ev3r3tt/Ev3r3tt is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
