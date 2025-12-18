@@ -2,7 +2,7 @@
 - 👀 I’m interested in blooket hacks
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on idk
-- 📫 How to reach me idk
+- 📫 How to reach me(676-676-6767)phone
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i do blooket hacks
 
